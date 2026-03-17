@@ -1,4 +1,4 @@
-## Danger Zone of R&D ML Engineer Warior Profile , IF YOU COMPETE WITH ME , YOUR WHOLE CAREER WILL BE AUTOMATED !
+## Danger Zone of R&D ML Engineer Warrior Profile , IF YOU COMPETE WITH ME , YOUR WHOLE CAREER WILL BE AUTOMATED !
 
 <!--
 **AhmadHudhud83/AhmadHudhud83** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
